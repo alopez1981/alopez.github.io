@@ -1,2 +1,0 @@
-# alopez.github.io
-Portfolio
